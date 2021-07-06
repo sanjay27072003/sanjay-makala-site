@@ -1,1 +1,1 @@
-# sanjay-makala-site
+# sanjay-makala-site-personal
